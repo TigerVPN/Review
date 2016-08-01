@@ -10,7 +10,7 @@ Sticky password manager is an awesome collaboration of TigerVPN. You have alread
 
 <strong>COST </strong>
 
-Costing of Hero Tiger plan is the lowest. It will cost you $6.67 each month if you subscribe for the 12 months plan. The 6 months plan will cost you about $8.33 per month. You won’t be given the facility of sticky password manager as it is only available for Hero Tiger Plan users. If you just wanted to give it a try you can obviously purchase the Zen Tiger Plan. It’s only $9.99 per month. If you don’t like TigerVPN you can ask for your money at any time. No question will be asked against your decision.Also you can use <a href="https://vpnlover.com/tigervpn-coupon-code/">tigervpn promo </a>code for discount
+Costing of Hero Tiger plan is the lowest. It will cost you $6.67 each month if you subscribe for the 12 months plan. The 6 months plan will cost you about $8.33 per month. You won’t be given the facility of sticky password manager as it is only available for Hero Tiger Plan users. If you just wanted to give it a try you can obviously purchase the Zen Tiger Plan. It’s only $9.99 per month. If you don’t like TigerVPN you can ask for your money at any time. No question will be asked against your decision.Also you can use <a href="https://vpnlover.com/tigervpn-coupon-code/">tigervpn promo code</a> for discount
 
 PROTOCOL SELECTION
 
